@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AsiniPerera
+- 👋 Hi, I’m Asini Perera
 - 🌱 I’m currently learning NIBM Colombo
 - 📫 How to reach me umayaperera423@gmail.com
 
